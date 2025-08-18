@@ -1,6 +1,6 @@
 Ewerton Amorim da Silva
 Av. Amazonas 274, Extensão Novo Rio das Ostras, RJ
-(21) 97627-0605 | ewertonamorimrov@gmail.com
+(21) 97627-0605 | ewerton.amorim.si.ccna@gmail.com
 
 Data: 19/01/2025
 
